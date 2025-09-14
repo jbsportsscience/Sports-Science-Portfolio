@@ -1,7 +1,7 @@
 Welcome to my Sports Science Portfolio!
 
 
-I am Jerrel Bushel, currently a sports science intern at New York City FC First team.
+I am Jerrel Bushel, currently a sports science intern at New York City FC with the First team.
 
 This portfolio is a collection of sports science and biomechanics projects that I have worked on in my sports science career to date.
 Below is a short description of each element of this portfolio.
