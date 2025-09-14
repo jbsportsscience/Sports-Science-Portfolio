@@ -9,6 +9,7 @@ I am open and welcome to constructive feedback as I am willing to learn and grow
 If you'd like to connect or have any questions, comments, or concerns please feel free to reach out at any of my contacts below.
 
 LinkedIn: https://www.linkedin.com/in/jerrel-bushel/
+
 Email: jerrel.bushel@nycfc.com
 
 Enjoy!
